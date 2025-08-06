@@ -1,5 +1,3 @@
-# BLBI-Platform
-Global Redistribution Platform Concept - Basic Living &amp; Basic Income Hybrid
 # BLBI Platform: Goods-First & Full-Transparency Model  
 **Global Redistribution Platform Concept**  
 **― Basic Living & Basic Income Hybrid ―**
